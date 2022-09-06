@@ -2,7 +2,7 @@
 - 👀 I’m interested in Music
 - 🌱 I’m currently learning Music
 - 💞️ I’m looking to collaborate on Music
-- 📫 How to reach me > 09952710914 gcash
+- 📫 How to reach me > play musical instruments
 
 <!---
 Natroxious/Natroxious is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
